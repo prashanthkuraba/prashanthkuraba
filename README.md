@@ -1,4 +1,4 @@
-# my-profile
+
 # 👋 Hi, I'm Prashanth Bandi
 
 🌍 **Location:** Anantapur, Andhra Pradesh, India  
